@@ -40,4 +40,8 @@ Description.
 
 ## Notes
 
+MOTHNODE_ Moth To A Flame [Prototype]
+
+Another 5 minute video. Going slightly insane from the lack of a proper workstation. Soon tho. Soon my friends. For now we stick with phone audio and videography. #undergroundrap #underground #rapper #trapmusic #trap #darkmusic #trap #polskitrap #polskichlopak #soundcloud #trapper
+
 ## Music Video
